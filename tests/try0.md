@@ -1,0 +1,9 @@
+# Your Andrzej Sapkowski's New Witcher Book Gets Release Window
+
+# Andrzej Sapkowski's New Witcher Book Gets Release Window
+
+![Responsive image](https://oaidalleapiprodscus.blob.core.windows.net/private/org-gXPbBm0AsUo5a4CtQGiKlNGU/user-w6ZkVLVP9InJi6KkAr5kPeie/img-BZpBMbnDIBJf3VQ9CLnFZTq6.png?st=2023-11-21T12%3A15%3A49Z&se=2023-11-21T14%3A15%3A49Z&sp=r&sv=2021-08-06&sr=b&rscd=inline&rsct=image/png&skoid=6aaadede-4fb3-4698-a8f6-684d7786b067&sktid=a48cca56-e6da-484e-a814-9c849652bcb3&skt=2023-11-20T20%3A18%3A19Z&ske=2023-11-21T20%3A18%3A19Z&sks=b&skv=2021-08-06&sig=hyo9KQmmn6OraXts2bzLapbK%2BJTpb4pXzorFu3Nstds%3D) 
+
+Andrzej Sapkowski, the author of The Witcher series, has announced that the next book is expected to be released worldwide in early 2025, after debuting in Poland in late 2024\. He hinted at the content of the story, jokingly commenting on how Netflix's adaptation has financially benefited him. While it's not confirmed, the new book may focus on the "Sirens of the Deep," an animated film announced by Netflix that's based on one of Sapkowski's short stories, "A Little Sacrifice." It further hints at possibly expanding the story of Essi Daven, a fan-favorite character, and her interactions with Geralt of Rivia and Dandelion. The upcoming book might be a side story similar to Sapkowski's "Season of Storms," which was a standalone narrative set before the main Witcher saga. Alongside these developments, the Witcher universe has grown to include video games, a Netflix series, comic books, a tabletop RPG, manga, and even a cookbook.
+
+Find the original article at [this link](https://www.ign.com/articles/andrzej-sapkowskis-new-witcher-book-gets-release-window). 
